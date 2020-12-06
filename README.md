@@ -1,1 +1,1 @@
-I am currently a student at Brooklyn College. I am working towarda a computer science degree and am expected to graduate in 2023. I plan to continue to umprove teh quality of work with every project done.
+I am currently a student at Brooklyn College. I am working towards a computer science degree and am expected to graduate in 2023. I plan to continue to improve the quality of work with every project done.
